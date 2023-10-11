@@ -5,4 +5,4 @@ Enriching Knowledge Societies
 
 9–13 October 2023, Emirates
 
-[www.ica2022roma.com](https://abudhabi2023.ae)https://abudhabi2023.ae
+(https://abudhabi2023.ae)https://abudhabi2023.ae
